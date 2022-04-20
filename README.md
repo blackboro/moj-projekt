@@ -1,3 +1,4 @@
 # MOJ PRVI PROJEKT NA GITU
 
-o mom prvom projetku.
+https://fridaynightfunkin.games 
+https://wtfgames.io
